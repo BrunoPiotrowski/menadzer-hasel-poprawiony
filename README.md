@@ -1,0 +1,1 @@
+# menadzer-hasel-poprawiony
